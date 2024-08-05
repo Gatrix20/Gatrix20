@@ -1,5 +1,5 @@
 # 💫 About Me:
-📫 How to reach me: alopezmora21@gmail.com<br>👨🏽‍💻 Fullstack Developer, Front-End & Back-End Developer and Web Developer<br>🎖️ I am perpetually driven to enhance my skills and strive for excellence in all that I pursue. <br>
+📫 How to reach me: ailopezmora32@gmail.com<br>👨🏽‍💻 Fullstack Developer, Front-End & Back-End Developer and Web Developer<br>🎖️ I am perpetually driven to enhance my skills and strive for excellence in all that I pursue. <br>
 
 
 ## 🌐 Socials:
